@@ -31,8 +31,6 @@ I like to label my bags before I start. It speeds up the process. Highly recomme
 
 Some action of fault conception at work with me! 
 
-![IMG_1050](https://github.com/mediocrereverse/building_and_running_picoemp/assets/133725400/c43e3206-2169-493d-b4e2-e1d1b0019b34)
-
 ![IMG_1048](https://github.com/mediocrereverse/building_and_running_picoemp/assets/133725400/f5a0d22e-c9c1-439e-a8b0-a5f4b09172a4)
 
 ![IMG_1046](https://github.com/mediocrereverse/building_and_running_picoemp/assets/133725400/bea3e67d-ab14-450b-bed0-75d46e311606)
